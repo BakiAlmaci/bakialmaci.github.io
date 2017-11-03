@@ -1,1 +1,0 @@
-# bakialmaci.github.io
